@@ -1,0 +1,1 @@
+# Smart-Legal-Case-Platform
